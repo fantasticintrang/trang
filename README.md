@@ -1,0 +1,2 @@
+# trang
+fantastic in trang
